@@ -1,1 +1,0 @@
-# kimpai-nc-tracker
